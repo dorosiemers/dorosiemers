@@ -5,7 +5,7 @@ Working on becoming a woman in tech 👩🏻‍💻
 ## What I've already been
 * 💒 Student
 * 🍓 Princess
-* 🎧 Podcastproducer u. Project Manager
+* 🎧 Podcast Producer & Project Manager
 
 ## What's up next
 ![image](https://image.shutterstock.com/image-photo/image-260nw-1568696365.jpg)
